@@ -1,2 +1,2 @@
-See [this page](http://lambenresearch.com/softrock) for more information.
+See [this page](http://lambentresearch.com/softrock) for more information.
 
